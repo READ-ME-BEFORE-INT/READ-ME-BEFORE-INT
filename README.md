@@ -70,7 +70,7 @@ we're unlikely to say anything, but we might interact with emotes and boops!
 
 #### We regress voluntarily and for comfort. Regression is *NOT* a sexual thing for us, and if you even *SLIGHTLY* imply that it is you will be blocked immediately.
 
-*This is not at all a dig at ageplayers. Anyone who thinks ageplayers are inherently predatory are projecting or completely misunderstand what ageplay is and we stand by that, always.*
+*This is not at all a dig at ageplayers. Anyone who thinks that ageplayers are inherently predatory are projecting or completely misunderstand what ageplay is, and we will always stand by that.*
 
 #### You will also be blocked immediately if you try to spark an argument or "debate" about whether or not agere and/or petre is valid, including making the argument that doing it voluntarily is invalid. 
 
