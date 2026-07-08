@@ -1,8 +1,10 @@
+
 <div align="center">
 
-  # Bluey!
+  
+<img width="230" height="30" alt="dgctdn6-ba327266-f1d1-40e2-8e54-0bc521ca85a3" src="https://github.com/user-attachments/assets/95a07489-1af2-466f-9d82-025fc114a3be" />
 
-
+##
 
 <img width="450" height="270" alt="bluey-bluey-the-sign" src="https://github.com/user-attachments/assets/7226fca9-8d00-48e8-983c-ee44dd2597ef" />
 
