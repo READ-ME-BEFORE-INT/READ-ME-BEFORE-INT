@@ -23,6 +23,8 @@ hii you can call us buddy or bluey ok? if you already know us by another one of 
 
 if this github is on one of our ponies, we're probably age-regressing and/or pet-regressing!
 
+you can find some more information about age-regression [here](https://agereguide.neocities.org/)! we recommend taking a look even if you've heard of agere before.
+
 during this we have public chat bubbles turned off and usually won't engage in conversation.
 
 
