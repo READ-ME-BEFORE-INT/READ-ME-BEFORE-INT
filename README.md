@@ -31,8 +31,9 @@ a helpful [link](https://agereguide.neocities.org/) for anyone unfamiliar with a
 
 hi everypony! please call us morty, even if you know us by another name already.
 
-we use **he/they/it** pronouns
+we use **he/they/it** pronouns & are 18 years old
 
+###### Our little age is somewhere around 6-10 years.
 
 **not a system**. we are one person who sometimes likes to use we/us when referring to ourself. 
 
