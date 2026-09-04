@@ -1,35 +1,60 @@
 
 <div align="center">
 
+  ### AGE-REGRESSION ACCOUNT
+
+This Github is **<ins>NOT</ins>** for age-play. 
+
+###### I have nothing against age-players, I just want to make it very clear that this is for age-regression EXCLUSIVELY. If you imply otherwise you will be blocked immediately.
+
+
+  <details>
+<summary><ins>I might be on your DNI</ins></summary>
+
+Pro-fiction & Pro-ship, Comshipper & Darkshipper.
+
+Block me if you need to.
   
-<img width="230" height="30" alt="dgctdn6-ba327266-f1d1-40e2-8e54-0bc521ca85a3" src="https://github.com/user-attachments/assets/95a07489-1af2-466f-9d82-025fc114a3be" />
+</details>
 
 ##
 
-<img width="450" height="270" alt="bluey-bluey-the-sign" src="https://github.com/user-attachments/assets/7226fca9-8d00-48e8-983c-ee44dd2597ef" />
-
-<img width="270" height="270" alt="bluey-gasp" src="https://github.com/user-attachments/assets/b48349e0-46fc-4fa2-a048-95f97dc7f7d3" />
+<img width="350" height="50" alt="dgctdn6-ba327266-f1d1-40e2-8e54-0bc521ca85a3" src="https://github.com/user-attachments/assets/95a07489-1af2-466f-9d82-025fc114a3be" />
 
 
-age-regression & pet-regression
-
-
-##
-
-hii you can call us bluey or morty. other names are ok but we prefer those two when we're little!
-
+a helpful [link](https://agereguide.neocities.org/) for anyone unfamiliar with age-regression!
 
 
 ##
 
-a helpful link for learning about [agere](https://agereguide.neocities.org/)!
+###### Please interact with care if this Github is on our pony.
+
+hi everypony! please call us morty, even if you know us by another name already.
+
+we use **he/they/it** pronouns
+
+
+**not a system**. we are one person who sometimes likes to use we/us when referring to ourself. 
+
+###### If we're directly talking to people we probably won't speak like this, dealing with the confusion is just too frustrating.
+
+usually non-verbal / semi-verbal, especially if we don't know you. sorry!
+
+DO NOT try roleplaying with us, please! if you do we'll probably ignore you.
 
 ##
 
-HUGE touch & cuddle comfort! we're very happy with cuddles & heavily encourage sitting with us. 
+morty smith fictionkin / irl
 
-we're unlikely to say anything, but we might interact with emotes and boops! 
+###### "Doubles" are encouraged to interact!
 
+bluey is our favorite show!
+
+###### Also Rick and Morty, of course.
+
+we love cuddles! free c*h always, asking isn't required! 
+
+###### It's very unlikely that we'll initiate cuddles, we're a big scaredy-cat.
 
 </div>
 
