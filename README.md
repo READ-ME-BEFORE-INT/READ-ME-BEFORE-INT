@@ -33,8 +33,6 @@ hi everypony! please call us morty, even if you know us by another name already.
 
 we use **he/they/it** pronouns & are 18 years old
 
-###### Our little age is somewhere around 6-10 years.
-
 **not a system**. we are one person who sometimes likes to use we/us when referring to ourself. 
 
 ###### We are very unlikely to speak like this if we're talking to you directly, especially if we don't know you. Mostly to avoid confusion, partially because it's not something we do 24/7.
