@@ -35,7 +35,7 @@ we use **he/they/it** pronouns & are 18 years old
 
 **not a system**. we are one person who sometimes likes to use we/us when referring to ourself. 
 
-###### We are very unlikely to speak like this when talking to you directly, especially if we don't know you. Mostly to avoid confusion, partially because it's not something we do 24/7.
+###### We are very unlikely to speak like this when talking to people directly. Mostly to avoid confusion, partially because it's not something we do 24/7.
 
 usually non-verbal / semi-verbal, especially if we don't know you. sorry!
 
