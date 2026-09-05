@@ -3,10 +3,14 @@
 
   ### AGE-REGRESSION ACCOUNT
 
+<details>
+<summary><ins>IMPORTANT</ins></summary>
+
 This Github is **<ins>NOT</ins>** for age-play. 
 
 ###### I have nothing against age-players, I just want to make it very clear that this is for age-regression EXCLUSIVELY. If you imply otherwise you will be blocked immediately.
 
+</details>
 
   <details>
 <summary><ins>I might be on your DNI</ins></summary>
@@ -16,6 +20,9 @@ Pro-fiction & Pro-ship, Comshipper & Darkshipper.
 Block me if you need to.
   
 </details>
+
+###### ^ Click these ^
+
 
 ##
 
